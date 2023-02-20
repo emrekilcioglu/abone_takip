@@ -1,1 +1,0 @@
-# abone_takip
